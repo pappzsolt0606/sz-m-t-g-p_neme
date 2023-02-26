@@ -1,1 +1,1 @@
-# sz-m-t-g-p_neme
+# szamitogep_neme
